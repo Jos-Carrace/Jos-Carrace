@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **cocktails**
 
-- 📫 How to reach me **josue.carrace@gmial.com**
+- 📫 How to reach me **josue.carrace@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
